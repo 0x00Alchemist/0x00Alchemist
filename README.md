@@ -1,6 +1,6 @@
 ## Digital Nihilism.
 
-Hello, my nickname is 0xVISM (or just vism.). At the moment I know C and understand Assembly (maybe), and I'm also a reverse engineer.
+Hello, my nickname is 0xVISM (or just vism.). At the moment I know C and understand Assembly (maybe), I'm also a reverse engineer and cryptography maniac.
 
 Also, check my sweetie: [SaphirePI](https://github.com/SaphirePI)
 
