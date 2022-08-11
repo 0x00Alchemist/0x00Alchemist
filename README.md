@@ -1,2 +1,2 @@
 ## Digital Nihilism.
-![photo_2021-05-10_18-13-30](https://user-images.githubusercontent.com/45564102/124040138-021fca80-da0d-11eb-9d31-023b08a88ab4.jpg)
+![last_words](https://sun9-east.userapi.com/sun9-42/s/v1/ig2/18sczBXmfLLdZn8WxsmA83mDpC7wqjiqBKSYzLSitEgpN94jct2VedtildkpjIEbXIxG2pIv1ygkEGkQ728pUHMM.jpg?size=1158x588&quality=96&type=album)
