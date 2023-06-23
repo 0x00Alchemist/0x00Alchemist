@@ -1,2 +1,2 @@
 ## Digital Nihilism.
-![last_words](https://sun1-20.userapi.com/impg/JXaKT8YU-k0sppFTw7IDBgg4SnhIU5JO3myhAQ/eOt8u_DgteE.jpg?size=2168x946&quality=95&sign=0316b4396dd68c20ba0c1806e6db8ab7&type=album)
+![last_words](https://64.media.tumblr.com/332e6196ec4711e4bcea36c56276cf60/tumblr_ozxjlwngpe1vgf8bko1_1280.pnj)
