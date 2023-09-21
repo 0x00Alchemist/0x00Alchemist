@@ -1,2 +1,14 @@
 ## Digital Nihilism.
-![last_words](https://64.media.tumblr.com/df9ec73a9fa360fbf8b3031dd867884b/tumblr_oqj7muUsQR1vgf8bko1_1280.pnj)
+<img src="https://sun9-56.userapi.com/impg/2kxik0xes83q2qOZ7ezOx7MZ4h0UXt65SpcDhw/Pc9e4vcx--w.jpg?size=900x428&quality=95&sign=9e7164080296ef94091b182a94b418bd&type=album">
+
+## About me
+19 y/o lovely little sunshine with borderline disorder. 
+Interested in:
+- Windows internals
+- UEFI & ACPI related stuff
+- Vulnerability researching
+- Reverse engineering
+- Alcohol
+
+## Projects
+Most of my projects are public and you can see them here, except for the ones that have been abandoned or made for good people.
